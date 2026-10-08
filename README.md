@@ -1,0 +1,2 @@
+# Lifeafterjustfriend
+hidup just friend👏
